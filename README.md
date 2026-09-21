@@ -12,4 +12,3 @@ I think you are doing too good because of some suspicious activity....
 Hello Buddy Whatsupp??
 Nothing Important^^^^
 Just Living Life and Enjoying the Problems and facing different Experience of Life!'
-We can not change once its gets permanent but once after the changes 
